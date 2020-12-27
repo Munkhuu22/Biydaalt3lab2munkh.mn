@@ -1,0 +1,1 @@
+# Biydaalt3lab2munkh.mn
